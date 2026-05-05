@@ -1,0 +1,1 @@
+# 2025_2026-cloud-platforms-as-the-basis-of-technology-entrepreneurship-k66666-fedor-stepanov-itmo
